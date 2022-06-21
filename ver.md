@@ -1,1 +1,0 @@
-https://www.youtube.com/watch?v=i6t2jaRxos4 PAREI NO VÍDEO 14:20
