@@ -9,4 +9,3 @@
 - HTML
 - CSS
 - JS(Agora estou fazendo projetos com JS para aprender a linguagem. É uma linguagem extremamente boa!)
-
